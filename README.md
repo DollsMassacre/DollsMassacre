@@ -3,9 +3,11 @@
 <ins> 𝐃𝚘𝚕𝚕 </ins> ‎ ‎ ‎ ‎
 ‎‎ ˙⊹ ㅤ 𝕋𝚑𝚎𝚢 ‎/ ᴛʜᴇᴍ ‎ ‎ ‎ 𝙰𝚐𝚎𝚕𝚎𝚜𝚜ㅤ .⊹
 </𝚙>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-![Description](https://www.image2url.com/r2/default/gifs/1777394398366-8ff63b5e-658b-441c-984d-f25ce6fa67f6.gif)
+<img src="https://www.image2url.com/r2/default/gifs/1777394398366-8ff63b5e-658b-441c-984d-f25ce6fa67f6.gif" width="450">
+
+
  <div align="center">
    
 ##### <sub>[*ATA*](https://dollsmassacre.atabook.org/)⠀٭⠀[*StrawPage*](https://dolls-massacre.straw.page) ٭ [*Gunslol*](https://guns.lol/dollsmassacre) <div align="center">
