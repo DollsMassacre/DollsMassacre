@@ -6,7 +6,7 @@
 
  <div align="center">
    
-##### <sub>[*ATA*](https://dollsmassacre.atabook.org/)⠀٭⠀[*StrawPage*](https://dolls-massacre.straw.page) ٭ [*Gunslol*](https://guns.lol/dollsmassacre) <div align="center">
+##### <sub>[*新*](https://dollsmassacre.atabook.org/)⠀٭⠀[*StrawPage*](https://dolls-massacre.straw.page) ٭ [*Gunslol*](https://guns.lol/dollsmassacre) <div align="center">
 
 
   <p align="center">
