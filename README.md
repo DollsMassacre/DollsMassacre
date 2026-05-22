@@ -3,7 +3,7 @@
 
  <div align="center">
    
-##### <sub>— ˙ [*新*](https://dollsmassacre.atabook.org/)⠀⊹⠀[*StrawPage*](https://dolls-massacre.straw.page) ⊹ [*Gunslol*](https://guns.lol/dollsmassacre) ⌗ ˙ <div align="center">
+##### <sub>— ˙ [*新*](https://dollsmassacre.atabook.org/)⠀⊹⠀[*StrawPage*](https://dolls-massacre.straw.page)ㅤ⊹ㅤ[*Gunslol*](https://guns.lol/dollsmassacre) ⌗ ˙ <div align="center">
 
 <div align="center">
 
