@@ -1,8 +1,10 @@
 <div align="center">
  
-<img width="25" height="25" src="https://www.image2url.com/r2/default/gifs/1779522635039-90df0632-2b48-4009-9785-e57f1802bbff.gif" />
+<img width="30" height="30" src="https://www.image2url.com/r2/default/gifs/1779522635039-90df0632-2b48-4009-9785-e57f1802bbff.gif" />
 
- 
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31oufwjeumero4wwow2beoq27ue4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31oufwjeumero4wwow2beoq27ue4&redirect=true)<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oufwjeumero4wwow2beoq27ue4&redirect=true">
+    
 
  <div align="center">
    
