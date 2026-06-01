@@ -8,8 +8,8 @@
 
  <div align="center">
    
-##### <sub>–˙ [*新*](https://dollsmassacre.atabook.org/)ㅤ⊹ㅤ[*StrawPage*](https://dolls-massacre.straw.page) ₊๑ <div align="center">
-<div align="center">
+##### <sub>–˙ [*新*](https://dollsmassacre.atabook.org/)ㅤ⊹ㅤ[*StrawPage*](https://dolls-massacre.straw.page)ㅤ⊹ㅤ[*Art*](https://padlet.com/DollsMassacre/y-eat-p3gwjaldqsdww1m8)ㅤ₊๑ <div align="center">
+
 
  
  <p align="center">
