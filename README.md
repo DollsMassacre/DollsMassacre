@@ -17,7 +17,8 @@
 </p>
 ᵐʸ ᵃʳᵗ ᵇᵗʷ ᵎᵎ
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31oufwjeumero4wwow2beoq27ue4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31oufwjeumero4wwow2beoq27ue4&redirect=true)<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oufwjeumero4wwow2beoq27ue4&redirect=true">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  
 
