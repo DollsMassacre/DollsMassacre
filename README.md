@@ -3,7 +3,10 @@
 
  <p align="center">
   <img src="https://www.image2url.com/r2/default/images/1782362390228-2ef8b791-9905-42f1-aa7b-7ccf93a330e5.png" />
+
+<div align="center">
     
+$\text{\color{#FC3527}"𝐈 𝚍𝚘𝚗𝚝 𝚔𝚗𝚘𝚠 𝚠𝚑𝚢 𝚍𝚒𝚍}$ $\text{\color{#FFBC66} 𝐲𝐨𝐮}$ $\text{\color{#FC3527} 𝚍𝚘𝚞𝚋𝚝 𝚖𝚎."}$
 
  <div align="center">
    
