@@ -4,7 +4,7 @@
  ##### <sub> [*新*](https://dollsmassacre.atabook.org/)ㅤ.ㅤ[*StrawPage*](https://dolls-massacre.straw.page)ㅤ.ㅤ[*Art*](https://padlet.com/DollsMassacre/y-eat-p3gwjaldqsdww1m8)ㅤ <div align="center">
 
  <p align="center">
-  <img src="https://www.image2url.com/r2/default/images/1782362390228-2ef8b791-9905-42f1-aa7b-7ccf93a330e5.png" />
+  <img src="https://cdn.phototourl.com/free/2026-07-19-0389389d-d26b-428f-b913-eda51ec11238.png" />
 
 <div align="center">
     
