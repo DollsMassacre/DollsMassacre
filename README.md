@@ -1,5 +1,4 @@
 <div align="center">
- <img width="15" height="15" alt="Image" src="https://www.image2url.com/r2/default/gifs/1782363151649-37598049-4a32-4af6-967c-59f645da66fb.gif" />
 
  ##### <sub> [*新*](https://dollsmassacre.atabook.org/)ㅤ.ㅤ[*StrawPage*](https://dolls-massacre.straw.page)ㅤ.ㅤ[*Art*](https://padlet.com/DollsMassacre/y-eat-p3gwjaldqsdww1m8)ㅤ <div align="center">
 
@@ -8,9 +7,7 @@
 
 <div align="center">
     
-$\text{\color{#FC3527}"𝐈 𝚍𝚘𝚗𝚝 𝚔𝚗𝚘𝚠 𝚠𝚑𝚢 𝚍𝚒𝚍}$ $\text{\color{#FFBC66} 𝐲𝐨𝐮}$ $\text{\color{#FC3527} 𝚍𝚘𝚞𝚋𝚝 𝚖𝚎."}$
 
- <div align="center">
    
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
